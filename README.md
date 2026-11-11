@@ -64,7 +64,9 @@ Descobrir qual exercício mais se encaixa com você é um processo estruturado q
 Para encontrar a modalidade e os exercícios ideais, vale a pena seguir esses passos respaldados pela literatura científica:
 
 fonte: https://www.bodynutry.ind.br/post/19-metodos-e-sistemas-de-treinamento-de-forca-e-hipertrofia-muscular#null
+
 fonte: https://www.youtube.com/watch?v=ANRl9vs1LKg
+
 fonte: https://cefd.ufes.br/sites/cefd.ufes.br/files/field/anexo/hugo_policarpo_farina_e_luiz_felipe_pimentel_-_metodos_de_treinamento_de_forca_tradicionais_e_contemporaneos_uma_revisao_descritiva.pdf
 
 ## Acesso ao projeto
