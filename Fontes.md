@@ -18,6 +18,7 @@ https://www.youtube.com/watch?v=ANRl9vs1LKg
 
 # Saude e Estilo De Vida
 https://www.ovid.com/jnls/acsm-healthfitness/abstract/10.1249/fit.0000000000001203~making-movement-matter-engagement-and-workplace-physical?redirectionsource=fulltextview
+
 Artigo: Efeitos da musculação na saúde e bem-estar de pessoas sedentárias
 
 # Treinamento Funcional
@@ -36,6 +37,7 @@ https://pubmed.ncbi.nlm.nih.gov/33322981/
 https://ctyeh.com/articles/2542?lang=en
 https://clinmedjournals.org/articles/ijsem/international-journal-of-sports-and-exercise-medicine-ijsem-8-228.php?jid=ijsem
 https://acsm.org/education-resources/trending-topics-resources/physical-activity-guidelines/
+
 Artigo: Fisiologia do Exercício e Prescrição Multimodal: Da Musculação ao Treinamento Funcional, Corrida e Reabilitação
 https://pmc.ncbi.nlm.nih.gov/articles/PMC7153037/
 https://www.foundmyfitness.com/episodes/exercise-https://pmc.ncbi.nlm.nih.gov/articles/PMC7153037/
