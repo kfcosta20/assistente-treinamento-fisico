@@ -6,6 +6,7 @@ https://www.ovid.com/jnls/acsm-healthfitness/fulltext/10.1249/fit.00000000000012
 https://www.researchgate.net/publication/407121559_Treinamento_de_forca_e_musculacao_bases_cientificas_adaptacoes_fisiologicas_e_aplicacoes_metodologicas
 https://www.bodynutry.ind.br/post/19-metodos-e-sistemas-de-treinamento-de-forca-e-hipertrofia-muscular
 https://www.scielo.br/j/rbme/a/Y9vYkwhHhbzKcKNSG9Ft85s/?lang=pt
+
 Dialnet-Evidências Científicas Sobre a Eficácia dos Dois Métodos 
 https://cefd.ufes.br/sites/cefd.ufes.br/files/field/anexo/hugo_policarpo_farina_e_luiz_felipe_pimentel_-_metodos_de_treinamento_de_forca_tradicionais_e_contemporaneos_uma_revisao_descritiva.pdf
 https://www.youtube.com/watch?v=LHWJuZwx8SM
